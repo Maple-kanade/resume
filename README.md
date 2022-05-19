@@ -5,7 +5,7 @@
 kanade＠めーぷる（＠Maple-kanade）
 1992年生まれ 東京都中野区在住
 
-SNS
+
 - Twitter: https://twitter.com/maple_kanade
 
 
